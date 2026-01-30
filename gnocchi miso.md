@@ -1,7 +1,7 @@
 Ingredients
 - gnocchi
 - white miso (but other miso would be fine)
-- asparagus
+- chopped asparagus
 - arugula
 - vegan or regular butter
   
